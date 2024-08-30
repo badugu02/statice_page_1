@@ -1,0 +1,1 @@
+# statice_page_1
